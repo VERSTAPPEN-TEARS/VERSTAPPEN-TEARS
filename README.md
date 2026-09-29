@@ -3,9 +3,13 @@
                                          
                                                     ꨄ︎  17 - poc / blk ˃ᴗ˂
 
-                                                    Max Verstappen Irl  𓆩❤︎𓆪 
+                                                ⋆˚꩜｡ Mel / Millie Graves #22 ⋆‧°
 
-                                    c+h always oke im js too shy, usually offtab, busy w senior yr
+                                                𑣲. mv3 + mg22 - gravesappen ♡
+
+                                                     Max Verstappen Irl  𓆩❤︎𓆪 
+
+                                     c+h always oke im js too shy, usually offtab, busy w senior yr
 <table border="0" cellpadding="0" cellspacing="0">
   <tr> <!-- LEFT SIDE: MAIN CHARACTER ART -->
     <!-- LEFT SIDE: MAIN CHARACTER ART -->  
